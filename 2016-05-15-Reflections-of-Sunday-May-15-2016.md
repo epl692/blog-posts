@@ -1,0 +1,5 @@
+---
+layout: post
+title: Reflections of Sunday, May 15, 2016
+---
+So, I told you earlier that I planned on posting both personal and technical items here, and so here is one of them. Today our sermon was on the Parable of the Soil, more commonly known as the Parable of the Sower. And the main point was asking, what type of soil are we, are we like the path, where we don't even take root? Or perhaps we are like the rocky soil, excited to put into practice what we learned, but soon to forget it. Maybe perhaps we are like the seeds planted in the thorns, where we grow, but never bear fruit. (Personally I think that this one is a very common spot for Christians to be in, we love God, we go to church, but we completely fail to love our neighbors, especially when it's inconvenient.) Or, are we as we all like to think we are and rarely end up where we are good soil, the seed grows in us, takes root, and then grows to produce much fruit! I hope we can all grow to this point. Where we love one another, even when it's not easy, and we don't give up on people because they are lost. Because when was the last time you asked for directions when you knew where you where going?
